@@ -1,0 +1,1 @@
+# Infinix-hot12-pay
